@@ -11,7 +11,7 @@ toc: true
 
 ## 〈020〉
 # Chhìn飯m̄食，cha-bó͘ kán-á ê（新娘m̄食，婆á gia̍h）
-> **Chhìn-pn̄g m̄ chia̍h, cha-bó͘ kán-á ê(Sin-niû m̄ chia̍h, pô-á gia̍h)**
+> **Chhìn-pn̄g m̄ chia̍h, cha-bó͘ kán-á ê (Sin-niû m̄ chia̍h, pô-á gia̍h)**
 
 「裕鳳，eng暗ê飯hō͘你煮，媽媽boeh來去台中thit-thô， boeh暗á chiah ē tńg--來。Cha-hng chhun--ê hiah ê chhìn飯炒炒--leh，chiah koh量kóa米落去電鍋煮；菜，ē-po͘食chhun--ê thn̄g-thn̄g--leh to̍h有夠--á！」
 
