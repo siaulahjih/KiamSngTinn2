@@ -11,7 +11,7 @@ toc: true
 
 ## 〈033〉
 # 未chēng斷尾liu，to̍h ē作孽
-> **Bē-chēng tng bóe-liu, to̍h ē chok-gia̍t**
+> **Bē-chēng tn̄g bóe-liu, to̍h ē chok-gia̍t**
 
 掀開報紙實在驚死人，泡沫紅茶店竟然出現hit-lō穿chhah清涼ê cha-bó͘ gín-á-phí，大膽跳豔舞，調查年歲iáu未超過18；另外chi̍t-ê消息，講根據調查，高中職校ê學生，有將近一成bat試過男女ê性愛，也to̍h是有過性經驗，iáu未sêng-liân--leh，是作孽！
 
