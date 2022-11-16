@@ -1,19 +1,17 @@
 ---
 chapter: 鹹酸甜第2冊
-title: 056. 有
+title: 057. 目chiu kek chhuh-chhuh;屎ha̍k-á看做Ho͘-thé-luh
 author: Siau Lah-jih
-date: 2021-04-26
+date: 2021-04-27
 category: chheh
 show_chapter: 1
 layout: post
 toc: true
 ---
 
-## 〈056〉
-# 有
-> **Ū**
-目chiu kek chhuh-chhuh;屎ha̍k-á看做Ho͘-thé-luh
-Ba̍k-chiu kek chhuh-chhuh, sái-ha̍k-á khòaⁿ-chò Ho͘-thé-luh
+## 〈057〉
+# 目chiu kek chhuh-chhuh;屎ha̍k-á看做Ho͘-thé-luh
+> **Ba̍k-chiu kek chhuh-chhuh, sái-ha̍k-á khòaⁿ-chò Ho͘-thé-luh**
 
 講tio̍h「目chiu花花，匏á看做菜瓜；目chiu霧霧，pa̍t-á soah看做蓮霧」，iáu有一句hām這kāng意思，叫做「目chiu kek chhuh-chhuh，屎ha̍k-á看做Ho͘-thé-luh」。Boeh解說有khah費氣--tām-po̍h-á。
 
