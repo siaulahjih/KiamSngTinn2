@@ -17,7 +17,7 @@ Chit kái里長選舉了後，趕緊tńg去祖厝看結果，m̄是hò͘ⁿ-hiâ
 
 Ka-tī庄--裡ê民主風度無落氣，taⁿ換來看別位；mài看m̄知影，看了hō͘人ē驚。為tio̍h選舉結冤仇，你tiâu免歡喜，我絕對m̄放你soah，恐嚇暴力boeh hō͘你好看；mā有hit-lō當事人khah明理，選輸to̍h到chia soah，輸to̍h是輸，無必要tòa hia起he-ku；m̄-koh「做戲--ê boeh soah，看戲--ê m̄ soah」，伊ê thiau-á-kha a̍h是後面支持者，為tio̍h派系作怪，暗中ê作弄，黑道ê霸守，恐驚小小地方ē起波浪。里長ê選舉，hīⁿ-ho͘ⁿ-á to̍h聽真chē人講ài廢止。地方自治，社區ê營造是根基，根基nā散，國家ê前途boeh án-chóaⁿ ē有希望。
 
-選舉運動，看戲kāng款，kài chē人趣味「人teh食米粉，tòe人leh hoah燒」看鬧熱，棚頂ê戲齣看tio̍h無sòa-phah，棚kha ê人當然是大細聲hoah；奸臣無死ē氣死人，好人先亡看戲ê人ē發狂，「做戲---ê boeh soah，看戲--ê m̄ soah」；kám真正有影做戲khong，看戲gōng，a̍h是棚kha ê人lóng是忠--ê？台灣人--à！你是為tio̍h地方貢獻leh走chông，a̍h是為tio̍h權勢利益leh走火入魔？選舉soah，你iáu m̄ soah，何苦--neh？
+選舉運動，看戲kāng款，kài chē人趣味「人teh食米粉，tòe人leh hoah燒」看鬧熱，棚頂ê戲齣看tio̍h無sòa-phah，棚kha ê人當然是大細聲hoah；奸臣無死ē氣死人，好人先亡看戲ê人ē發狂，「做戲--ê boeh soah，看戲--ê m̄ soah」；kám真正有影做戲khong，看戲gōng，a̍h是棚kha ê人lóng是忠--ê？台灣人--à！你是為tio̍h地方貢獻leh走chông，a̍h是為tio̍h權勢利益leh走火入魔？選舉soah，你iáu m̄ soah，何苦--neh？
 
 
 
