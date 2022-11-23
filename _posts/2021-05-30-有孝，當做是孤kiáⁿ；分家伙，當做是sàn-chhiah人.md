@@ -1,15 +1,15 @@
 ---
 chapter: 鹹酸甜第2冊
-title: 081. 有孝，當做是孤kiáⁿ；分家伙，當做是sàn-chhiah人
+title: 090. 有孝，當做是孤kiáⁿ；分家伙，當做是sàn-chhiah人
 author: Siau Lah-jih
-date: 2021-05-21
+date: 2021-05-30
 category: chheh
 show_chapter: 1
 layout: post
 toc: true
 ---
 
-## 〈081〉
+## 〈090〉
 # 有孝，當做是孤kiáⁿ；分家伙，當做是sàn-chhiah人
 > **Iú-hàu, tòng-chò sī ko͘-kiáⁿ; pun ke-hóe, tòng-chò sī sàn-chhiah-lâng**
 
