@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-## 〈100〉 
+## 〈100〉
 # 藤條gia̍h在手，無分親chiâⁿ kah朋友
 > **Tîn-tiâu gia̍h tī chhiú, bô hun chhin-chiâⁿ kah pêng-iú**
 
