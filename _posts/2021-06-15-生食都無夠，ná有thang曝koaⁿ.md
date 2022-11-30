@@ -1,6 +1,6 @@
 ---
 chapter: 鹹酸甜第2冊
-title: 005. 生食都無夠，ná有thang曝koaⁿ
+title: 附05. 生食都無夠，ná有thang曝koaⁿ
 author: Siau Lah-jih
 date: 2021-06-15
 category: chheh
@@ -9,7 +9,7 @@ layout: post
 toc: true
 ---
 
-## 〈005〉
+## 〈附05〉
 # 生食都無夠，ná有thang曝koaⁿ
 > **Chheⁿ-chia̍h to bô-kàu, ná ū thang pha̍k-koaⁿ**
 
