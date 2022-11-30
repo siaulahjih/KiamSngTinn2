@@ -1,6 +1,6 @@
 ---
 chapter: 鹹酸甜第2冊
-title: 001. 有風m̄駛船，無風chiah beh激櫓
+title: 附01. 有風m̄駛船，無風chiah beh激櫓
 author: Siau Lah-jih
 date: 2021-06-11
 category: chheh
