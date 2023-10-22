@@ -23,7 +23,7 @@ toc: true
 
 人生過程，出世，做gín-á讀冊，大hàn結婚生kiáⁿ，人生咱，咱生人，天地生成，kám講一生堅心m̄嫁，boeh做老姑婆？Nā án-ne，你kám有另外ê人生觀來解說運命？時代leh變，ta̍k-ê khah開化，m̄管是cha-bó͘-kiáⁿ a̍h新婦，lóng是kāng款tio̍h疼，m̄管是親父母a̍h ta-ke-koaⁿ，lóng tio̍h照起工有孝khah有影。Nā有這款觀念，koán-thāi伊hó-gia̍h sàn，lóng ē得tio̍h快樂生活。
 
-【註解】
+
 
 ### 【註解】
 
