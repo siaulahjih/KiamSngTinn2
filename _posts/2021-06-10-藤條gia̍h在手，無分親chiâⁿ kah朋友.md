@@ -25,7 +25,7 @@ Siau Lah-jih m̄是法官，六法全書bē-hiáu看，m̄-koh「藤條gia̍h在
 |詞|解說|
 |夭壽|Iáu-siū，傷天害理ē折壽。|
 |Chhiâⁿ|牽成教育。|
-|Chhiâu hō͘正|『糾正』。|
+|Chhiâu ho͘正|『糾正』。|
 |騙gín-á|『哄騙孩子』。|
 |坦khi-pêng|Thán-khi-pêng，偏心。|
 |Chhòan|『每次』。|
