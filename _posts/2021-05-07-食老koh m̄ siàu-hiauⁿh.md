@@ -15,7 +15,7 @@ toc: true
 
 前日chiah leh hō͘人o-ló「食老koh有牽挽」，隨時ka-tī to̍h檢討講運動ài適當，mài chhio-tiô，mài想boeh kah人piàⁿ，節節á來，節ka-tī身體kham ē去ê能力，nā超過to̍h去倒害。
 
-禮拜日hit場比賽to̍h犯了戒，差chi̍t-su̍t-á to̍h有影去倒害，真ka-chài睏一暝hioh-khùn了後，精神又koh原在。
+禮拜日hit場比賽to̍h犯了戒，差chi̍t-sut-á to̍h有影去倒害，真ka-chài睏一暝hioh-khùn了後，精神又koh原在。
 
 是án-ne，妻舅陳代書in網球隊，邀請西螺隊朋友來phah球，因為人數無夠，特別拜託阮ang-bó͘去o͘-ián參加。Hit日Siau Lah-jih chái起時有台語課，閃bē開kha，等kah 11點gōa chiah去Pó-táu，人已經siah幾nā盤，準備boeh食中晝頓，阮ang-bó͘想pháiⁿ-sè，先落去phah一場，11點gōa ê日頭中央，室外無cha̍h影，紫外線kiám-chhái超過10度，kāng款你來一粒，我sak一拍，kho̍k來kho̍k去，kòng來kòng去，30分鐘to̍h汗流sám滴，頭殼燒hōm-hōm，giōng-boeh lia̍h狂。
 

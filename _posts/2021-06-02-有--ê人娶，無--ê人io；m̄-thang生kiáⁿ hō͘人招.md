@@ -17,7 +17,7 @@ toc: true
 
 「Ná ē m̄知！人he m̄-chiah是leh娶bó͘，kan-taⁿ聘金to̍h 600萬，其他ê禮餅、siāⁿ底to̍h算是lân-san--ê。」
 
-古早人tī-leh講：「有--ê人娶，無--ê人io，m̄-thang生kiáⁿ hō͘人招。」彭議員是有--ê ê人，娶新婦當然chhia-iāⁿ，派頭粗，禮數kāu，cha-hng ê筵席辦100桌，差chi̍t-su̍t-á to̍h piak，差chi̍t-su̍t-á to̍h落氣。
+古早人tī-leh講：「有--ê人娶，無--ê人io，m̄-thang生kiáⁿ hō͘人招。」彭議員是有--ê ê人，娶新婦當然chhia-iāⁿ，派頭粗，禮數kāu，cha-hng ê筵席辦100桌，差chi̍t-sut-á to̍h piak，差chi̍t-sut-á to̍h落氣。
 
 有--ê是用娶--ê，ah無--ê boeh án-chóaⁿ？古早人是用io--ê。Siáⁿ-mih是io--ê-leh？To̍h是kā人分chi̍t-ê細漢cha-bó͘ gín-á來飼，飼到伊大hàn，chiah hām ka-tī ê後生結房sak做堆，也m̄免聘金，也m̄免做餅，連辦桌請人客都省--起來，to̍h是一般人講ê「新婦仔」，華語講ê『童養媳』--lah！Chit款細漢io來做新婦ê風俗，自早真chē，mā有苦毒新婦á ê悲劇，mā有少年--ê細漢兄妹á稱呼慣勢，大hàn sak做堆ang-bó͘行，in soah bē慣勢，只好隨人嫁娶，當然圓滿結房幸福過日mā真chē。
 
@@ -39,7 +39,7 @@ toc: true
 |分|Pun，收養（養女）。|
 |Kah ka-tī ê後生|『跟自己的親生子』。|
 |Hō͘人招|Hō͘人招做kiáⁿ婿，『入贅』。|
-|差chi̍t-su̍t-á to̍h piak|差一點á to̍h爆滿。|
+|差chi̍t-sut-á to̍h piak|差一點á to̍h爆滿。|
 |結房sak做堆|『圓房送做堆』。|
 |童養媳|Tông-ióng-sek。|
 |新婦á|養女，hām新婦無kāng意思。|
